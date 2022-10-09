@@ -1,1 +1,1 @@
-Empresa angola no sector de tecnologia e soluçōes.
+Empresa angolana no sector de tecnologia e soluçōes.
