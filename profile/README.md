@@ -1,1 +1,1 @@
-Empresa angola no sector de desenvolvimento de web e mobile
+Empresa angola no sector de tecnologia e soluçōes.
